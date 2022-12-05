@@ -10,7 +10,7 @@
 
 - I am curious about learning new things;especially languages.
 
-- ![language](https://user-images.githubusercontent.com/111273062/205685741-82e7ad67-f1a5-47d1-a63a-ee2e1ea4a874.jpeg)
+![language](https://user-images.githubusercontent.com/111273062/205685741-82e7ad67-f1a5-47d1-a63a-ee2e1ea4a874.jpeg)
 
 -I know English  
 
