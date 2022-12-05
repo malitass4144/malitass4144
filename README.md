@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Muhammed Ali Taş
 - 26 years old
 - Born in a village of Sivas
-- ![sivas-thumbnail](https://user-images.githubusercontent.com/111273062/205684788-cde85877-8c4c-45ca-8b91-cc2e4d9e0b10.png)
+ ![sivas-thumbnail](https://user-images.githubusercontent.com/111273062/205684788-cde85877-8c4c-45ca-8b91-cc2e4d9e0b10.png)
 - Graduated from Işıklar Military High Scholl in 2015.
-- ![askeri lise](https://user-images.githubusercontent.com/111273062/205685001-a78416bd-c9ba-41a0-bfed-a4d948331777.jpeg)
+![askeri lise](https://user-images.githubusercontent.com/111273062/205685001-a78416bd-c9ba-41a0-bfed-a4d948331777.jpeg)
 - I am curious about learning new things;especially languages.
 - ![language](https://user-images.githubusercontent.com/111273062/205685741-82e7ad67-f1a5-47d1-a63a-ee2e1ea4a874.jpeg)
 -I know English  ![english](https://user-images.githubusercontent.com/111273062/205685652-d9f5887c-97ed-4532-bb24-61d9cb289285.jpeg)
